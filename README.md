@@ -1,3 +1,7 @@
+
+
+作者你好,很冒昧这样打扰你,但是现在事情紧急,人命关天,人命关天,人命关天,看到消息后辛苦联系一下allencharm@163.com
+
 # Resumer
 
 Make Resume Creating Easily!
